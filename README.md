@@ -1,4 +1,4 @@
-![doggy](https://github.com/user-attachments/assets/911eb968-9eab-403e-8439-c17db2023a47)
+![star eyes doggy](https://github.com/user-attachments/assets/cd25f4c8-3075-4e97-969a-b870593ebdf4)
 
 hiiiiiiiiiiiiii
 
