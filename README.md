@@ -1,15 +1,12 @@
-<img width="456" height="120" alt="image" src="https://github.com/user-attachments/assets/ec88bbc7-e1a5-418b-974e-bdf5f41b62e3" />
 
 
-<img width="579" height="550" alt="image" src="https://github.com/user-attachments/assets/90b354d8-3c7c-43bc-b844-a42491359c97" />
+<img width="1728" height="403" alt="image" src="https://github.com/user-attachments/assets/da20cb7b-deaa-498c-8591-6ba96f5be99a" />
 
+୨⎯⎯⎯⎯୧ ୨⎯⎯⎯⎯୧ ୨⎯⎯⎯⎯୧ ୨⎯⎯⎯⎯୧ ୨⎯⎯⎯⎯୧
 
- <img width="456" height="120" alt="image" src="https://github.com/user-attachments/assets/c25711c7-db13-42cf-afcc-3e613f33138e" />
+   hii! draw on my straw if u wantt  
 
-
-
-
-
-
-hiiiiiiiiiiiiii ₍₍⚞(˶˃ ꒳ ˂˶)⚟⁾⁾
-
+   
+   house md fans int noww!! 
+      ୨⎯⎯⎯⎯୧
+   byeee now!
