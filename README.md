@@ -1,5 +1,5 @@
-<img width="500" height="500" alt="textytext" src=<img width="587" height="550" alt="image" src="https://github.com/user-attachments/assets/8f2180c0-2999-4747-b6c9-9ef9047d70af" />
- />
+</ "width="587" height="550" alt="image" src="https://github.com/user-attachments/assets/8f2180c0-2999-4747-b6c9-9ef9047d70af" />
+ 
 
 ![angel](https://github.com/user-attachments/assets/cb6c4f66-7a7d-4013-a612-cfd7faf9e195) <img width="72" height="25" alt="bunny with wings" src="https://github.com/user-attachments/assets/da0b3a1c-d749-491d-af47-6d63e60141fb" />
 ![lazy](https://github.com/user-attachments/assets/5d87fa15-cc7e-4cbf-b639-a4df71c2a50d) <img width="72" height="25" alt="bunny with wings" src="https://github.com/user-attachments/assets/da0b3a1c-d749-491d-af47-6d63e60141fb" />
