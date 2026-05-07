@@ -7,13 +7,7 @@
 
 
 
-<img width="494" height="606" alt="image" src="https://github.com/user-attachments/assets/610a5099-48dd-4942-bd6b-b3b750ae8562" />
-
-
-
-
-
-<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/5d721952-7e09-4f8e-8cfa-f4c204befdce" />
+<img width="494" height="606" alt="image" src="https://github.com/user-attachments/assets/610a5099-48dd-4942-bd6b-b3b750ae8562" /><img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/5d721952-7e09-4f8e-8cfa-f4c204befdce" />
 
    hii! draw on my straw if u wantt  
 
